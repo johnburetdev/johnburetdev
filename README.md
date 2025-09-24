@@ -2,4 +2,4 @@
 - 👀 I’m interested in web develoment, bastketbal and travel
 - 🌱 I’m currently learning new lenguage and updating skills 📈
 - 💞️ I’m looking to collaborate on any project that allows me to improve
-- 📫 How to reach me @jb_developer (instagram) and johnburet.dev@gmail.com 
+- 📫 How to reach me @jb__13dev (instagram) and johnburet.1213@gmail.com 
